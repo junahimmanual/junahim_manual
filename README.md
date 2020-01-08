@@ -1,1 +1,0 @@
-# junahim_manual
